@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...learning and exploring
 - 🌱 I’m currently learning ...software development
 - 💞️ I’m looking to collaborate on ...mnc
-- 📫 How to reach me ...conqueritnow23@gmail.com
+- 📫 How to reach me ...kumarisweta2342004@gmail.com
 - 😄 Pronouns: ...sweta
 - ⚡ Fun fact: ...
 
